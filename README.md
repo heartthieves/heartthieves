@@ -1,1 +1,2 @@
-<img src="https://files.catbox.moe/umr2zo.gif"/>
+<img src="https://files.catbox.moe/hpktpy.png"/>
+.co/thieves
